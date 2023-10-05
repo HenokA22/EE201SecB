@@ -2,7 +2,7 @@
 
 Welcome to my personal page.
 
-![Henok](Assalif2.PhotoMe.png)>)
+![Henok](Assalif2.PhotoMe.png)
 
 ## About Me
 
